@@ -14,7 +14,7 @@
 
 - 📫 How to reach me **aditinigam100@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1Q91R8o5pRsEKmuQVBjPWIcO1CdRkcQVO/view?usp=drive_link](https://drive.google.com/file/d/1Q91R8o5pRsEKmuQVBjPWIcO1CdRkcQVO/view?usp=drive_link)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1rDHibgyC8LPDraAhsBultOmgp8CkK_iL/view?usp=drive_link](https://drive.google.com/file/d/1rDHibgyC8LPDraAhsBultOmgp8CkK_iL/view?usp=drive_link)
 
 - ⚡ Fun fact **I can hyperfocus on a project for hours, but finding my car keys? Mission impossible!🔑😅**
 
